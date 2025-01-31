@@ -32,7 +32,7 @@ We may update our Privacy Policy from time to time. We will notify you of any ch
 
 ## 8. Contact Us
 If you have any questions about this Privacy Policy, please contact us:
-- Email: [E-posta adresiniz]
-- Twitter: [@kullanıcıadınız]
+- Email: Huseyinsamsun81@gmail.com  
+- Twitter: huseyinsamsn
 
 This privacy policy is effective as of January 31, 2024
